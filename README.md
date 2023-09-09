@@ -1,2 +1,2 @@
-# iamprashanth238.github.io
-page
+# kattoju Prashanth
+I am Prashanth 3rd yr AI student from Anurag University
